@@ -1,4 +1,4 @@
-Artikel 1 vdm @here 
+Artikel 1 vdm
 VDM staat voor [VEHICLE DEATH MATCH]
 
  hij/zij die een voertuig als wapen gebruikt om   [BIJVOORBEELD]
